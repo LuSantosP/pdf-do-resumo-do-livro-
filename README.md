@@ -1,2 +1,1 @@
-# pdf-do-resumo-do-livro-
-resumo 
+[Unidade 1 - Conceitos Gerais sobre Gestão de Projetos_20250415_153549_0000.pdf](https://github.com/user-attachments/files/20197449/Unidade.1.-.Conceitos.Gerais.sobre.Gestao.de.Projetos_20250415_153549_0000.pdf)
